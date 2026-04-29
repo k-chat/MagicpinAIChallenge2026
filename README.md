@@ -1,0 +1,1 @@
+# MagicpinAIChallenge2026
